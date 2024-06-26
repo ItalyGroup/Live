@@ -1,1 +1,2 @@
-# Live
+# group
+Join and enjoy
